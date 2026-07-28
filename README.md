@@ -134,6 +134,15 @@ Contributions are welcome!
 
 Python Beginner | Learning Programming | Future Data Analyst
 
+# linkedin :
+www.linkedin.com/in/archana-kushvaha-a61166415
+
+# E-mail :
+archanakushvaha735@gmail.com
+
+# Explanation Video Link :
+
+
 ---
 
 ## ⭐ Support
